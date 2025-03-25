@@ -31,7 +31,7 @@ Booking and passing the **CITB Health and Safety Test** is necessary to:
 
 ## Book Your CITB Health and Safety Test Today
 
-You can **[book your CITB Health and Safety Test](https://dynamiseducation.co.uk/cscs-test-manchester/)** through an accredited test provider. Make sure to choose the right test to match your role in the construction sector.
+You can **[book your CITB Health and Safety Test](https://dynamiseducation.co.uk/hse-tests/)** through an accredited test provider. Make sure to choose the right test to match your role in the construction sector.
 
 ## Contact Us
 
